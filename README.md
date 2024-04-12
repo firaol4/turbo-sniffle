@@ -1,3 +1,4 @@
-# First Time
+# Turbo sniffle is a way to win
 
-I am learning
+Holistically sniffle your way to victory
+
